@@ -11,5 +11,5 @@ Estamos aqui para mostrar um pouco dos desafios que realizamos! :climbing_woman:
 
 🌱 E acima de tudo fazer do CONHECIMENTO um canal de transformação para um mundo melhor!
 
-Até mais! Nos encontramos nos códigos  :vulcan_salute:
+Até mais! Nos encontraremos nos códigos  :vulcan_salute:
 
